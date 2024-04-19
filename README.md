@@ -4,6 +4,13 @@ The workshop aims to address this critical need by focusing on the development o
 
 # Users
 
-admin@M365EDU352826.onmicrosoft.com
+7Pdm=R50R%x+;t5X
 
-4Qjs+M63Y^t(+h4P
+1. AshleyK@M365EDU352826.onmicrosoft.com
+2. AdeleV@M365EDU352826.onmicrosoft.com
+3. DouglasC@M365EDU352826.onmicrosoft.com
+4. EldonR@M365EDU352826.onmicrosoft.com
+5. CaraC@M365EDU352826.onmicrosoft.com
+
+
+https://portal.azure.com/
