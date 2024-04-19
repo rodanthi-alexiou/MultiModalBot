@@ -12,5 +12,6 @@ The workshop aims to address this critical need by focusing on the development o
 4. EldonR@M365EDU352826.onmicrosoft.com
 5. CaraC@M365EDU352826.onmicrosoft.com
 
+EllaT@M365EDU352826.onmicrosoft.com
 
 https://portal.azure.com/
